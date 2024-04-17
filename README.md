@@ -1,5 +1,4 @@
 ### Hi there 👋
-🧠🐒 I am a postdoctoral research associate in the Monosov Lab at Washington University in St Louis.
 
 ## My research
 ### Postdoctoral Research Associate (Monosov Lab, WUSTL)
